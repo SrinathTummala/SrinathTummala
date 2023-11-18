@@ -11,9 +11,8 @@
 💡 **What Drives Me:** I believe in the transformative power of data for informed decision-making.
 
 🌐 **Let's Connect:**
-- Email: [srinathtummala7@gmail.com](mailto:srinathtummala7@gmail.com)
 - [LinkedIn](https://www.linkedin.com/in/srinath-tummala/)
-- [GitHub](https://github.com/SrinathTummala)
+
 
 Feel free to reach out for collaboration or discussions!
 ## 💼 Open to Opportunities
